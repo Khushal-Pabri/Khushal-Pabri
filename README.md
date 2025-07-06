@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **pabrikhushal@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Aq3AzqfGy1t6HUqzaD0hAEgOkdTRV6Wi/view](https://drive.google.com/file/d/1Aq3AzqfGy1t6HUqzaD0hAEgOkdTRV6Wi/view)
+- 📄 Know about my experiences [[https://drive.google.com/file/d/1Aq3AzqfGy1t6HUqzaD0hAEgOkdTRV6Wi/view](https://drive.google.com/file/d/1Aq3AzqfGy1t6HUqzaD0hAEgOkdTRV6Wi/view](https://drive.google.com/file/d/1UGtE4TGFhc_eDXuOdxbisCaGFS963dy2/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
